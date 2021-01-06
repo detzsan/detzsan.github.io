@@ -1,1 +1,1 @@
-# detzsan.github.io
+©Daniel Lee, 2021
